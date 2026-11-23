@@ -1,3 +1,3 @@
 
 
-🗪 mach 10 oh boy
+mach 10 oh boy
